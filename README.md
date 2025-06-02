@@ -6,5 +6,5 @@ This is my personal profile as an aspiring billionaire and founder of carestone_
 📚 I’m studying Nursing at Madonna University  
 💡 I’m passionate about entrepreneurship, investment, and global impact  
 🌍 I’m on a journey: From Village Road to World Stage  
-📫 Reach me: obumnekepaula@gmail.com  
+📫 Reach me: obumnk@gmail.com  
 🔗 Website: [Coming Soon!]
